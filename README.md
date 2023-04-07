@@ -10,7 +10,7 @@
 
    ![cat sleep](https://lh3.googleusercontent.com/pw/AMWts8CETQ8Aa38wFfJ7Plb5qao56ztdnDaRqY7ZRlAAC_mnkT-AV8XUXNA01pey7XBqRK6OV8JcsOInHHWVwPDScyXFBWURoQnn9UsaI70PDdyET7f9-nCcPAGqCUZwSMCM6jzgCKyhDfrhZSqXeMSo06P0OQ=w1280-h721-s-no?authuser=0)
 
- **3. Собственных кожаных рабов (ой, сожителей)**
+ **3. Собственных кожаных рабов (ой, любимых человеков)**
 
    ![lovely cat](https://lh3.googleusercontent.com/pw/AMWts8DRNvrFF9jaIMhvZOa9GsHJ9cfc2QFaND9Yrbw0NSts_773YOG476HjwMIODNdZg4dF4qCnZLrVos_Lb9YZdtpWqvGA_d9E7XyfapHScdYyUXMVkTzuVzBzl7mmW7Aq-_U9OVB4AffUvaSNfgjLPEbKQQ=w1126-h1221-s-no?authuser=0)
 
